@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MonsterUltraMarine
+- 👋 Hi, I’m @MonsterUltra
 - 👀 I’m interested in Monster Ultras
 - 💞️ I’m looking to collaborate on how much Recaf I can consume
 - 📫 How to reach me The number on the back of an ultra can
